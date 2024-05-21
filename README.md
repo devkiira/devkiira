@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @devkiira
+- 🌱 I’m currently learning how to code in python :)
+- 📫 You can ask for my discord to reach me :)
+- 😄 Pronouns: She/Her
